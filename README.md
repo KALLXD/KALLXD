@@ -13,3 +13,4 @@
 
 [![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=KALLXD&layout=compact)](https://github.com/KALLXD/github-readme-stats)
 
+https://img.shields.io/modrinth/followers/instagram.%20com?color=white&label=jdnznzb&logo=github&logoColor=black&style=social
