@@ -1,16 +1,15 @@
 # Hi there, I'm Kall Xd👋 
 
 
-- 🔭 I’m currently working on  
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
-
--->## I'm a Kall xd
+- 🔭 I’m currently working on :Gk Tau😈
+- 🌱 I’m currently learning :Gk tau😈
+- 👯 I’m looking to collaborate on :Gk Tau😈
+- 🤔 I’m looking for help with :Gk Tau😈
+- 💬 Ask me about :Gk Tau😈
+- 📫 How to reach me: :Gk tau😈
+- 😄 Pronouns: :Gk tau😈
+- ⚡ Fun fact: Saya Suka Bermain Layangan😂
+-https://tenor.com/bXyJ4.gif 
 
 - 🔭 SAPA AKU 😂
 - 🌱 I’m currently learning everything 🤣
