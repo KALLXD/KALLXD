@@ -7,3 +7,9 @@
 
 [![Github stats](https://github-readme-stats.vercel.app/api?username=KallXd&show_icons=true&include_all_commits=true)](https://github.com/KallXd/github-readme-stats)
 [![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=KallXd&layout=compact)](https://github.com/KallXd/github-readme-stats)
+
+
+
+[![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=KALLXD&layout=compact)](https://github.com/KALLXD/github-readme-stats)
+
+![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=KALLXD&show_icons=true&theme=radical)
